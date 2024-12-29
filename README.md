@@ -25,7 +25,6 @@ Patreon 是什么？Patreon 是一个在线平台，允许创作者（如艺术�
 2. 注册并获取虚拟信用卡。
 3. 在 Patreon 支付页面选择虚拟信用卡作为支付方式，填写相关信息。
 
-[点击获取虚拟信用卡](https://bit.ly/Fomepay-Card)
 
 ## 订阅 Patreon 会员的优势
 
@@ -43,7 +42,4 @@ Patreon 是什么？Patreon 是一个在线平台，允许创作者（如艺术�
 
 通过以上步骤，你可以轻松订阅 Patreon，支持你喜欢的创作者。如果你没有实体信用卡，虚拟信用卡是一个很好的替代方案。希望本教程能帮助你顺利完成订阅。
 
-[点击获取虚拟信用卡](https://bit.ly/Fomepay-Card)
 
-
-[2024海淘免KYC虚拟信用卡，无年费月费](https://github.com/cwinbush59/KYC)
